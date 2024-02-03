@@ -1,1 +1,2 @@
-![try](https://github.com/aayusha-shrestha/bank-interface/assets/117591157/1d057d83-0048-4c33-adc1-f714b91dd8cd)
+![1](https://github.com/aayusha-shrestha/bank-interface/assets/117591157/1b7a6e35-7888-43d0-878c-7a5d3ca3eb97)
+![2](https://github.com/aayusha-shrestha/bank-interface/assets/117591157/65a8ed31-ec1a-44dc-bfde-21bed503e890)
